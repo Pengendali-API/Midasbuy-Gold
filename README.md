@@ -1,1 +1,1 @@
-# Midasbuy-Gold
+# Midasbuy-Razergold
